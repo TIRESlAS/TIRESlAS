@@ -1,6 +1,6 @@
 hey gang its me antler tiresias CEO heres the ref sheet 😛
 
-![image](https://github.com/user-attachments/assets/0efcf17a-fbea-48b5-bff7-2dc9f8c69e61)
+![image](https://github.com/user-attachments/assets/ac921938-0764-464e-b4c3-6222516d1503)
 art by urs truly
 
 <!--
