@@ -1,4 +1,7 @@
-## Hi there 👋
+hey gang its me antler tiresias CEO heres the ref sheet 😛
+
+![image](https://github.com/user-attachments/assets/0efcf17a-fbea-48b5-bff7-2dc9f8c69e61)
+art by urs truly
 
 <!--
 **TIRESlAS/TIRESlAS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
