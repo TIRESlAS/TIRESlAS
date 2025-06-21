@@ -1,4 +1,5 @@
 hey gang its me antler tiresias CEO heres the ref sheet 😛
+i love tiresias i love tiresias i love tiresias
 
 ![image](https://github.com/user-attachments/assets/ac921938-0764-464e-b4c3-6222516d1503)
 art by urs truly
