@@ -1,9 +1,5 @@
 hey gang its me antler tiresias CEO heres the ref sheet 😛
 i love tiresias and u should to! be a tiresias pony, today!
-
-![image](https://github.com/user-attachments/assets/ac921938-0764-464e-b4c3-6222516d1503)
-art by urs truly
-
 <!--
 **TIRESlAS/TIRESlAS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
